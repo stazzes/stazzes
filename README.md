@@ -2,9 +2,9 @@
 
 Im Omar/Gamzee i use he/she pronouns, do ___NOT___ use they/them for me.
 
-doubles please don't interact with me. 
+Gamzee doubles please don't interact with me. 
 
-It is COMPLETELY fine to take inspiration from my skins. but please, don't outright copy things or color schemes I come up with
+It is COMPLETELY fine to take inspiration from my skins. but don't outright copy things or start making your own ver of chars we're in
 
 you can find my links/more info about me on my [rentry](https://rentry.co/stazzes)
 
