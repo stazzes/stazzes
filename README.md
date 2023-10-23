@@ -14,4 +14,4 @@ and please write somethin down on my [guestbook](https://stazzes.123guestbook.co
 
 ♦️ [SonDiva](https://github.com/sondiva)
 
-♠️ [Mechanicat](https://github.com/M3chanicat)
+♠️ [Necr0se](https://github.com/NECR0SE)
