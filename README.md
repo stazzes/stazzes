@@ -10,8 +10,8 @@ you can find my links/more info about me [here](https://pronouns.cc/@stazzes)
 
 and please write somethin down on my [guestbook](https://stazzes.123guestbook.com)
 
-♦️ [AlluringScreech](https://github.com/AlluringScreech)
+◇ [AlluringScreech](https://github.com/AlluringScreech)
 
-♦️ [SonDiva](https://github.com/sondiva)
+◇ [SonDiva](https://github.com/sondiva)
 
-♠️ [Necr0se](https://github.com/NECR0SE)
+♤ [Necr0se](https://github.com/NECR0SE)
