@@ -6,6 +6,4 @@ and please write somethin down on my [guestbook](https://stazzes.123guestbook.co
 
 ◇: [AlluringScreech](https://github.com/AlluringScreech)
 
-◇: [SonDiva](https://github.com/sondiva)
-
 ♤: [Necr0se](https://github.com/NECR0SE)
