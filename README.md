@@ -2,9 +2,7 @@
 
 <img src="https://i.postimg.cc/ydWBJQvv/01d2623a.gif" width="20" height="20"/> **BYI :** We have Schizophrenia & Autism along with being an OSDD-1B system, so please IWC. no matter who is fronting
 
-<img src="https://i.postimg.cc/T37D5wxx/tumblr-a8c062c136418eaaab7af38faaabdab2-16c571a3-75.gif" width="20" height="20"/> **ABT :**
-
-<img src="https://i.postimg.cc/t4NHBZJ0/X0fRhTb.gif" width="20" height="20"/>  **LINKS :**
+<img src="https://i.postimg.cc/t4NHBZJ0/X0fRhTb.gif" width="20" height="20"/>  **LINKS :** [rentry](https://rentry.co/stazzes)
 
 <img src="https://i.postimg.cc/3rz4T6B8/eWa90mJ.gif" width="20" height="20"/> **PT INFO :**
 
